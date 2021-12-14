@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @amitavaghosh1
 - 👀 I’m interested in making developers lives easier
 - 🌱 I’m currently learning to cope with stress
-- 📫 How to reach me ...
+- 📫 How to reach me? don't
